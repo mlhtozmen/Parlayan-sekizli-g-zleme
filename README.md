@@ -1,0 +1,1 @@
+# Parlayan-sekizli-g-zleme
